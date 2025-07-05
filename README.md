@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @resex0
-- 🏎️ I’m interested in:- cars, making Music
-- 🌱 I’m currently learning:- Physics, Chemistry, Maths
+- 🏎️ I’m interested in:- cars, making music and listening to music
+- 🌱 I’m currently learning:- Maths
 - 📫 How to reach me:- dont
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 🦇
+- ⚡ Fun fact: 🦇 (im insomniac)
